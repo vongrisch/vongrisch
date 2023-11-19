@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vongrisch
+- 👀 I’m interested in Grisch style
+- 🌱 I’m currently learning grisch
+- 💞️ I’m looking to collaborate on freddes grisch 
+- 📫 How to reach me Pandabuy
